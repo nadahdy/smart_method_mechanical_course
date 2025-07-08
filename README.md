@@ -1,0 +1,1 @@
+# smart_method_mechanical_course
